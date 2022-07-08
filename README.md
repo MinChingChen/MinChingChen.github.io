@@ -1,1 +1,0 @@
-# MinChingChen.github.io
